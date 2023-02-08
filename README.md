@@ -1,0 +1,1 @@
+# kazgidromet-damir-1
